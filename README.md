@@ -2,6 +2,6 @@
 
 Rishitha Chintamreddy
 
-700779422
-
 CRN - 30665
+
+
